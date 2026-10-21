@@ -1,0 +1,2 @@
+# azamov
+dinazavor oyin
